@@ -2,21 +2,35 @@
 ⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹
 
 
+$${\color{#ffc9e4}Avdol's \space Wiband!}$$
 
+https://kojieluvzavdol.straw.page ꉂ(˵˃ ᗜ ˂˵)
 
-
-
-
-╰┈➤ https://kojieluvzavdol.straw.page ꉂ(˵˃ ᗜ ˂˵)
 https://guns.lol/kojosbizzare ⟢
+
 𝖺𝗍𝖺 𝖻𝗈𝗈𝗄 𝖺𝗇𝖽 𝖾𝗍𝖼 𝗌𝗍𝗂𝗅𝗅 𝗎𝗇𝖽𝖾𝗋 𝗐𝗂𝗉 ! (˶˃ ᵕ ˂˶)
-⠀⠀⠀⠀⠀⠀⠀   ⠀⠀⣾⠉⢳⣰⠋⠙⡆⠀⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠘⡀         ⡀⠘⠀⠀⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀ ⠙⠷⠋
-⣰⠟⠉⠙⢦⡀⢀⣾⡟⠉⠳⣆
-⣿⠀⠀⠀⠀⠛⠛⠁⠀⠀⠀⡿
-⠸⣇⠀⠀⠀⠀⠀⠀⠀⠀⣰⠃
- ⠙⢧⡀⠀⠀⠀    ⠀⢀⡴⠃⠀
-⠀⠀⠀⠙⠶⣄⣀⠴⠋⠀⠀⠀⠀⠀
-# jean pierre polnareff fictkin 
-- under wip sorry ---
+⠀⠀⠀⠀⠀⠀⠀   ⠀⠀
+# ⋆.ೃ࿔*:･ $${\color{#ff8cad}Jean \space Pierre \space Polnareff \space fictkinnie!}$$ »
+
+<code style="color:#ff85be ">Characters i kinnie (for fun!!) : </code>
+.𖥔 ݁ ˖ Bruno Buccarati
+
+(JJK) Kirara Hoshi .𖥔 ݁ ˖
+
+.𖥔 ݁ ˖ Anasui Narciso
+
+Giorno Giovanna .𖥔 ݁ ˖
+
+.𖥔 ݁ ˖ Shidou Ryusei (BLK)
+
+(SK8) Reki Kyan .𖥔 ݁ ˖
+
+.𖥔 ݁ ˖ Toji Fushiguro (JJK)
+
+(JJK) Itadori Yuuji .𖥔 ݁ ˖
+
+$${\color{#ff8cad}Characters \space that \space ARE \space me!!}$$
+
+(iwec/dni) ദ്ദി◝ ⩊ ◜.ᐟ
+
+✶⋆.˚ Jean Pierre Polnareff
