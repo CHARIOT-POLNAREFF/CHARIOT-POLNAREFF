@@ -6,6 +6,8 @@ $${\color{#ffc9e4}Avdol's \space Wiband!}$$
 
 https://kojieluvzavdol.straw.page ꉂ(˵˃ ᗜ ˂˵)
 
+𝗂𝗇𝗍 𝗉𝗅𝗌𝗌 ! 
+
 https://guns.lol/kojosbizzare ⟢
 
 𝖺𝗍𝖺 𝖻𝗈𝗈𝗄 𝖺𝗇𝖽 𝖾𝗍𝖼 𝗌𝗍𝗂𝗅𝗅 𝗎𝗇𝖽𝖾𝗋 𝗐𝗂𝗉 ! (˶˃ ᵕ ˂˶)
@@ -18,10 +20,14 @@ https://guns.lol/kojosbizzare ⟢
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/b659fd8d-cade-4919-aea3-d6a4aafb3f39" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/95d73aa1-a4b9-4391-9768-31b8c56e50c1" />
 
+<code style="color:#ff85be ">my literal BFF/kiddie: </code>
+<img width="718" height="571" alt="image" src="https://github.com/user-attachments/assets/504aaffe-65ca-4134-9475-31420f2bf591" />
+@YASHUO-HIROSE follow her NEOW ☺️
 
 
 
 <code style="color:#ff85be ">Characters i kinnie (for fun!!) : </code>
+
 .𖥔 ݁ ˖ Bruno Buccarati
 
 (JJK) Kirara Hoshi .𖥔 ݁ ˖
@@ -44,5 +50,6 @@ $${\color{#ff8cad}Characters \space that \space ARE \space me!!}$$
 
 ✶⋆.˚ Jean Pierre Polnareff
 
+<img width="1198" height="674" alt="image" src="https://github.com/user-attachments/assets/0ad24128-835d-4dd9-bc9e-1cbe9d1f5f4c" />
 
 
