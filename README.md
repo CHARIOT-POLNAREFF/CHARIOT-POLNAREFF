@@ -20,6 +20,7 @@ https://guns.lol/kojosbizzare ⟢
 
 <img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/b659fd8d-cade-4919-aea3-d6a4aafb3f39" /><img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/95d73aa1-a4b9-4391-9768-31b8c56e50c1" />
 
+
 <code style="color:#ff85be ">my literal BFF/kiddie: </code>
 <img width="718" height="571" alt="image" src="https://github.com/user-attachments/assets/504aaffe-65ca-4134-9475-31420f2bf591" />
 @YASHUO-HIROSE follow her NEOW ☺️
