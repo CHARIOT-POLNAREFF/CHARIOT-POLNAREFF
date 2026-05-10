@@ -10,7 +10,9 @@ https://kojieluvzavdol.straw.page ꉂ(˵˃ ᗜ ˂˵)
 
 https://guns.lol/kojosbizzare ⟢
 
-𝖺𝗍𝖺 𝖻𝗈𝗈𝗄 𝖺𝗇𝖽 𝖾𝗍𝖼 𝗌𝗍𝗂𝗅𝗅 𝗎𝗇𝖽𝖾𝗋 𝗐𝗂𝗉 ! (˶˃ ᵕ ˂˶)
+https://jeannpierre.atabook.org
+
+𝖾𝗍𝖼 𝗌𝗍𝗂𝗅𝗅 𝗎𝗇𝖽𝖾𝗋 𝗐𝗂𝗉 ! (˶˃ ᵕ ˂˶)
 ⠀⠀⠀⠀⠀⠀⠀   ⠀⠀
 # ⋆.ೃ࿔*:･ $${\color{#ff8cad}Jean \space Pierre \space Polnareff \space fictkinnie!}$$ »
 <img width="55" height="18" alt="image" 
