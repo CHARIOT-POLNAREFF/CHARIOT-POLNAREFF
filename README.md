@@ -53,4 +53,7 @@ $${\color{#ff8cad}Characters \space that \space ARE \space me!!}$$
 
 <img width="1198" height="674" alt="image" src="https://github.com/user-attachments/assets/0ad24128-835d-4dd9-bc9e-1cbe9d1f5f4c" />
 
+join my Jojos roleplay server ?
+
+https://discord.gg/7xHx9vByv8 
 
