@@ -6,13 +6,11 @@ $${\color{#ffc9e4}Avdol's \space Wiband!}$$
 
 https://kojieluvzavdol.straw.page ꉂ(˵˃ ᗜ ˂˵)
 
-𝗂𝗇𝗍 𝗉𝗅𝗌𝗌 ! 
-
 https://guns.lol/kojosbizzare ⟢
 
-https://jeannpierre.atabook.org
+https://jeannpierre.atabook.org ٩(ˊᗜˋ*)و ♡
 
-𝖾𝗍𝖼 𝗌𝗍𝗂𝗅𝗅 𝗎𝗇𝖽𝖾𝗋 𝗐𝗂𝗉 ! (˶˃ ᵕ ˂˶)
+𝖾𝗍𝖼 𝗌𝗍𝗂𝗅𝗅 𝗎𝗇𝖽𝖾𝗋 𝗐𝗂𝗉 ! (˶˃ ᵕ ˂˶) 𝗂𝗇𝗍 𝗉𝗅𝗌𝗌 ! 
 ⠀⠀⠀⠀⠀⠀⠀   ⠀⠀
 # ⋆.ೃ࿔*:･ $${\color{#ff8cad}Jean \space Pierre \space Polnareff \space fictkinnie!}$$ »
 <img width="55" height="18" alt="image" 
