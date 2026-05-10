@@ -55,5 +55,5 @@ $${\color{#ff8cad}Characters \space that \space ARE \space me!!}$$
 
 join my Jojos roleplay server ?
 
-https://discord.gg/7xHx9vByv8 
+https://discord.gg/7xHx9vByv8  (ദ്ദി˙ᗜ˙)
 
