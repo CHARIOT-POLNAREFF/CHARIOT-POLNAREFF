@@ -8,6 +8,8 @@ https://kojieluvzavdol.straw.page ꉂ(˵˃ ᗜ ˂˵)
 
 https://guns.lol/kojosbizzare ⟢
 
+https://prns.cc/ttcuu ˎˊ˗
+
 https://jeannpierre.atabook.org ٩(ˊᗜˋ*)و ♡
 
 𝖾𝗍𝖼 𝗌𝗍𝗂𝗅𝗅 𝗎𝗇𝖽𝖾𝗋 𝗐𝗂𝗉 ! (˶˃ ᵕ ˂˶) 𝗂𝗇𝗍 𝗉𝗅𝗌𝗌 ! 
