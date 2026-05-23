@@ -35,8 +35,6 @@ https://jeannpierre.atabook.org ٩(ˊᗜˋ*)و ♡
 
 (JJK) Kirara Hoshi .𖥔 ݁ ˖
 
-.𖥔 ݁ ˖ Anasui Narciso
-
 Giorno Giovanna .𖥔 ݁ ˖
 
 .𖥔 ݁ ˖ Shidou Ryusei (BLK)
@@ -47,11 +45,19 @@ Giorno Giovanna .𖥔 ݁ ˖
 
 (JJK) Itadori Yuuji .𖥔 ݁ ˖
 
+✶⋆.˚ Dio Brando
+
 $${\color{#ff8cad}Characters \space that \space ARE \space me!!}$$
 
 (iwec/dni) ദ്ദി◝ ⩊ ◜.ᐟ
 
 ✶⋆.˚ Jean Pierre Polnareff
+
+Narciso Anasui ✶⋆.˚ (dbls r ok!) 
+
+✶⋆.˚ Melone
+
+Vanilla Ice ✶⋆.˚ (YES DEAR GOD I KIN HIM.) 
 
 <img width="1198" height="674" alt="image" src="https://github.com/user-attachments/assets/0ad24128-835d-4dd9-bc9e-1cbe9d1f5f4c" />
 
