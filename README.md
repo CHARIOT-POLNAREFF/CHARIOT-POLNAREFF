@@ -45,11 +45,9 @@ Giorno Giovanna .𖥔 ݁ ˖
 
 (JJK) Itadori Yuuji .𖥔 ݁ ˖
 
-✶⋆.˚ Dio Brando
-
 $${\color{#ff8cad}Characters \space that \space ARE \space me!!}$$
 
-(iwec/dni) ദ്ദി◝ ⩊ ◜.ᐟ
+(iayor/dni) ദ്ദി◝ ⩊ ◜.ᐟ
 
 ✶⋆.˚ Jean Pierre Polnareff
 
