@@ -59,9 +59,14 @@ Narciso Anasui ✶⋆.˚ (dbls r ok!)
 
 Vanilla Ice ✶⋆.˚ (YES DEAR GOD I KIN HIM.) 
 
+✶⋆.˚ Dio Brando
 <img width="1198" height="674" alt="image" src="https://github.com/user-attachments/assets/0ad24128-835d-4dd9-bc9e-1cbe9d1f5f4c" />
 
 join my Jojos roleplay server ?
 
 https://discord.gg/7xHx9vByv8  (ദ്ദി˙ᗜ˙)
+
+small reminder: 
+<code style="color:#ff85be "> NO i do not have DID or OSDD, and i do not diagnose myself with any of them. I identify as 'plural', which is just multipe headspaces i have that just identify as others. im not the best at describin' it. just think of it as 'more than one' internally. its my way of coping. 🥖 </code>
+and if this makes you uncomfy or if you just have a problem with it, block me ☺️
 
