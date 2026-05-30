@@ -28,22 +28,7 @@ https://jeannpierre.atabook.org ٩(ˊᗜˋ*)و ♡
 @YASHUO-HIROSE follow her NEOW ☺️
 
 
-
-<code style="color:#ff85be ">Characters i kinnie (for fun!!) : </code>
-
-.𖥔 ݁ ˖ Bruno Buccarati
-
-(JJK) Kirara Hoshi .𖥔 ݁ ˖
-
-Giorno Giovanna .𖥔 ݁ ˖
-
-.𖥔 ݁ ˖ Shidou Ryusei (BLK)
-
-(SK8) Reki Kyan .𖥔 ݁ ˖
-
-.𖥔 ݁ ˖ Toji Fushiguro (JJK)
-
-(JJK) Itadori Yuuji .𖥔 ݁ ˖
+.𖥔 ݁ ˖ 
 
 $${\color{#ff8cad}Characters \space that \space ARE \space me!!}$$
 
